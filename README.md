@@ -1,3 +1,5 @@
+![91f31dde-eb10-46d1-80bb-bc611a1de1bc](https://github.com/user-attachments/assets/889c7423-b77e-42e4-80b6-9b49062d9892)
+
 # **Activity1-Static Ip**
 ![Activity1-Static Ip-Mohamed Shehta Mohamed-1111329267](https://github.com/user-attachments/assets/2108c9b8-a7d0-4d0e-aeb8-21b70eb0f31e)
 
